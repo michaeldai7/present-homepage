@@ -1,0 +1,1 @@
+![lp](/images/largenews.jpg)
